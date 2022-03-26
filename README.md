@@ -8,4 +8,4 @@ the first idea is to let depressed people express themselves without judgment AN
 
 ## *What else?*
 
-the site will have a list of banned words and the cat will be checked regularly in order to keep a cat without discrimination or any other form of harassment
+the site will have a list of banned words and the chat will be checked regularly in order to keep a chat without discrimination or any other form of harassment
